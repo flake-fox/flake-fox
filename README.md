@@ -1,3 +1,5 @@
+[hgg] whispers: gays are for strays 
+
 ---
 
 graphic idk when. 
